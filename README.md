@@ -1,6 +1,4 @@
-# Master-Trader-Pro-Results<iframe src="//www.fxblue.com/fxbluechart.aspx?c=ch_cumulativeprofit&id=wisefxid" frameborder="0" width="400" height="200"><a href="//www.fxblue.com">FX Blue - free tools and services for FX and CFD traders</a></iframe>
-
-
+# Master-Trader-Pro-Results
 
 <br> https://www.fxblue.com/users/wisefxid </br>
 <br> https://www.fxblue.com/users/wisefx </br>
