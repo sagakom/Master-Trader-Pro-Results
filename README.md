@@ -3,7 +3,8 @@
 <br> https://www.fxblue.com/users/wisefxid </br>
 <br> https://www.fxblue.com/users/wisefx </br>
 
-Wisefx.co.id
+
+<h1> Wisefx.co.id </h1> 
 
 
 <br> EASY MONEY FROM HARD LEARNING </br>
