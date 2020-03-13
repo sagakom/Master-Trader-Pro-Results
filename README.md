@@ -2,7 +2,7 @@
 
 <br> https://www.fxblue.com/users/wisefxid </br>
 <br> https://www.fxblue.com/users/wisefx </br>
-
+<a href="//www.fxblue.com/users/wisefxid/stats"><img src="//www.fxblue.com/banner.aspx?id=wisefxid&t=300"/></a>
 
 <h1> Wisefx.co.id </h1> 
 
