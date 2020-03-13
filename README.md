@@ -1,14 +1,14 @@
 # Master-Trader-Pro-Results
 
-https://www.fxblue.com/users/wisefxid
-https://www.fxblue.com/users/wisefx
+<br> https://www.fxblue.com/users/wisefxid </br>
+<br> https://www.fxblue.com/users/wisefx </br>
 
 Wisefx.co.id
 
 
-EASY MONEY FROM HARD LEARNING
-EXPERIENCE IS THE BEST TEACHER
-Experience is a good school. But the fees are high.
+<br> EASY MONEY FROM HARD LEARNING </br>
+<br> EXPERIENCE IS THE BEST TEACHER </br>
+<br> Experience is a good school. But the fees are high. </br>
 
 https://youtube.wisefx.co.id
 https://www.youtube.com/user/sagakom
